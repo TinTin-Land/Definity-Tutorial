@@ -48,11 +48,11 @@ TinTin与DFINITY团队共同合作推出了ICP入门开发课程《Internet Comp
 
 
 
-课程导读视频，帮助你更好的了解这门课程。欢迎观看👇
+课程导读视频，帮助你更好的了解这门课程。欢迎观看👉 https://youtu.be/MZ5bcFUfHB4
 
 
 
-# **教研团队**
+# **主讲老师**
 
 
 
